@@ -1,0 +1,2 @@
+# premium-entry-table-001-entry-table-building-taper-l
+Stop guessing taper angles and wasting expensive hardwood. Your next entry table build deserves a blueprint that eliminates math errors.  This Notion template transforms the complex process of designing and building an entry table with tapered legs into a precise, repeatable workflow. No more scrap wood from miscalculations — get exact cut lists, j
